@@ -1,1 +1,1 @@
-//hii this is jus for fun
+//hii this is just for fun
